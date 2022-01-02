@@ -8,6 +8,8 @@ Apalagi semenjak menjadi orang tua.
 
 [Jurnal Bunda](https://jurnalbunda.com) adalah blog yang saya khususkan untuk berbagi
 
+[catatan](https://www.siskadwyta.my.id)
+
 [cerita](https://www.ceritaayah.com), [kenangan](https://www.siskadwyta.com)
 
 
